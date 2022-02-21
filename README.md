@@ -4,7 +4,7 @@
 
 > "Problem-solving,inventing,hacking and coding is more of an adrenaline rush of endorphins rather than a feeling" -Walter O'Brien.
 
--I'm always trying to grow and learn somethingnew.
+- I'm always trying to grow and learn somethingnew.
 
 - ### What am focusing on;
 
